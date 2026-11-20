@@ -7,4 +7,4 @@
 - I'm Sam; I sit at Computer 02
 
 ## Josef Zaren R. Bautista
-- I'm Zaren; I sit at computer 01 👀👀👀
+- I'm Zaren. Hi Zaren! Bye Zaren.
