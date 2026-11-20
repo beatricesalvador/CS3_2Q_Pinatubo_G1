@@ -7,4 +7,4 @@
 - I'm Sam; I sit at Computer 02
 
 ## Josef Zaren R. Bautista
-- I'm Zaren. Hi Zaren! Bye Zaren.
+- I'm Zaren😊; I have a joke for you.👀 Ano tawag sa bayan na nasa baba ng balbas?🤔 Edi Chin-a!😂🤣😂🤣😂🤣🤣🤣🤣😂😂😂🤣😂😂
