@@ -2,6 +2,7 @@
 
 ## Beatrice D. Salvador
 - I'm Bea; I sit at Computer 03 🤪😲😲😲😲😲😲😲
+- what ❓ kind 😊 of computer 💻 sings 🎤 the best 🥇 ???????? a Dell 🥶🥶🥶🥶🥶🥶🤧😇😇😇😇😹😹😹😹😹😹😹😹😹😹
 
 ## Samantha Rose S. Deocampo
 - Hi I'm Sam and I am the cutest in our group 😁😊😋😎😍😘🤑
