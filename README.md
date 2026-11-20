@@ -5,3 +5,6 @@
 
 ## Samantha Rose S. Deocampo
 - I'm Sam; I sit at Computer 02
+
+## Josef Zaren R. Bautista
+- I'm Zaren; I sit at computer 01
