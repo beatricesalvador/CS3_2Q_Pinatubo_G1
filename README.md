@@ -4,7 +4,8 @@
 - I'm Bea; I sit at Computer 03 🤪😲😲😲😲😲😲😲
 
 ## Samantha Rose S. Deocampo
-- I'm Sam; I sit at Computer 02
+- Hi I'm Sam and I am the cutest in our group 😁😊😋😎😍😘🤑
+- why do Java developers wear glasses? because they can't C# hahahahahahahhahahahahahahah
 
 ## Josef Zaren R. Bautista
 - I'm Zaren😊; I have a joke for you.👀 Ano tawag sa bayan na nasa baba ng balbas?🤔 Edi Chin-a!😂🤣😂🤣😂🤣🤣🤣🤣😂😂😂🤣😂😂
